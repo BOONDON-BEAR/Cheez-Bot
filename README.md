@@ -2,15 +2,4 @@
 Code Stuff
 Download to edit
 After editing upload new
-
-
-
-
-
-
-thehrherherherh
-
-
-
-
-TESSSSSSSSSST
+Don't do stupid things
